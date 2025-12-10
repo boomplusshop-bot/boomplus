@@ -1,2 +1,2 @@
 # boomplus
-boomplusshop logistic
+BOOMPLUSSHOP.CO.LTD
